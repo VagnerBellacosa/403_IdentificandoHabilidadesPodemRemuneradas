@@ -48,3 +48,11 @@ Product Owner, DIO[**](https://www.linkedin.com/in/mariomartinsneto1/)
 
 
 
+ [README.md](..\README.md) 
+
+
+
+https://web.dio.me/lab/identificando-suas-habilidades-que-podem-ser-remuneradas/learning/b6a68c71-e1da-4b6d-9959-433bf4f7765a?back=/track/caixa-inteligencia-artificial-na-pratica
+
+
+
